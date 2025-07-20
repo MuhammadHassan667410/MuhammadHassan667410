@@ -13,4 +13,4 @@ I post daily about my progress in my linkedin account and also creating my portf
 
  Let’s connect and grow together — whether you're in tech, hiring new talent, or learning AI too!
 
-📫 [LinkedIn – Muhammad Hassan](www.linkedin.com/in/muhammad-hassan-035a78375/)
+📫 [LinkedIn – Muhammad Hassan](http://www.linkedin.com/in/muhammad-hassan-035a78375/)
